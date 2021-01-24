@@ -1,1 +1,0 @@
-# modelx-no.github.io
